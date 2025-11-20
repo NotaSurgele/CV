@@ -1,1 +1,1 @@
-![](CV.png?raw=true)
+![](PICARD_ALEXIS.pdf)
