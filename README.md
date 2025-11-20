@@ -1,1 +1,1 @@
-![](PICARD_ALEXIS.pdf)
+![](picard_alexis.jpg)
